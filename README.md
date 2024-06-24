@@ -1,4 +1,4 @@
-### bem vindo ao meu perfil :blue_heart
+### bem vindo ao meu perfil 💙
 
 meu nome é ADRIAN LUCAS BORBA
 
